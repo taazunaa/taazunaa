@@ -4,7 +4,9 @@
 - 😄 Pronouns: Any idm
 - ⚡ Fun fact: i fucking suck at everythinf (i love joe tazuna sm 💀)
 
-<!---
-taazunaa/taazunaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+
+
+
+
+cheese ballxs :sob:
